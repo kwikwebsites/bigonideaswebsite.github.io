@@ -1,2 +1,0 @@
-# bigonideaswebsite.github.io
- 
